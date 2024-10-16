@@ -7,7 +7,7 @@ ________________________________________________________________________________
 - CATHOLIC GIRL
 - Turning 20 next year....... Yaaaaaaaayyyyyyyyyyyyyy.....!
 - Fav music is Vocaloid, Ween, S3RL, Apex Twin, Kraftwerk, anything of the sort
-- Other interests would be Pressure, Aquabats, IZ, TAWOG and FBACC
+- Other interests would be Pressure, Aquabats, IZ, TAWOG, Ratboy Genius and FBACC
 - On and off artist, mainly digital
 - These aren't all of my interests.. But ! You can always ask me about the rest. PLEASE tell me if you know about Aquabats (supershow, and the band itself), Bone (comic) Bounce On (game series), Pocket God (game and comic)
   
