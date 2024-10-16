@@ -9,6 +9,7 @@ ________________________________________________________________________________
 - Fav music is Vocaloid, Ween, S3RL, Apex Twin, Kraftwerk, anything of the sort
 - Other interests would be Pressure, Aquabats, IZ, TAWOG, Ratboy Genius and FBACC
 - On and off artist, mainly digital
+- I love writing but I never post
 - These aren't all of my interests.. But ! You can always ask me about the rest. PLEASE tell me if you know about Aquabats (supershow, and the band itself), Bone (comic) Bounce On (game series), Pocket God (game and comic)
   
 - Most of the time, I LOVE being around people and making new friends, as long as you're my friend back. Never be afraid to chat w/me !! Pls share your interests and niche fandoms with me, chances are, I'll join you ...
