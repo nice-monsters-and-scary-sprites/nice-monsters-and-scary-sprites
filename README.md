@@ -24,7 +24,7 @@ ________________________________________________________________________________
 - NSFW/R34 artists
 - Anti-theist. I'm very open about my faith. If that bothers you, hide me
 
-- Okay I know these are common sense, but apparently this one isn't: **ANYONE WHO SHARES AND GLORIFIES ANY KINDS OF PORN**; You will be hidden, **NO EXCEPTIONS.**
+- Okay I know these are common sense, this one is sort of specific to me: **Aanybody who shares porn with others**; You will be hidden, **NO EXCEPTIONS.**
 
 
 _______________________________________________________________________________________________________
