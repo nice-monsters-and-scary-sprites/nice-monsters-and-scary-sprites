@@ -19,8 +19,8 @@ ________________________________________________________________________________
 *DNI...* 🤷‍♀️
 - If you're below 16
 - Into zoophelia, adultxchild, incest ships, loli/shota (AKA: common sense!)
-- NSFW/R34 in general, and if you're prone to sharing that sort of thing with others
-- I'm very open about my faith. If that bothers you so bad, then hide me
+- NSFW/R34 in general, if you're prone to sharing that sort of thing with others ..
+- I'm very open about my faith. If that annoys you so bad then hide me lol
 
 _______________________________________________________________________________________________________
 
