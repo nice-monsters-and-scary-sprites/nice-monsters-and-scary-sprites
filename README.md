@@ -21,10 +21,10 @@ ________________________________________________________________________________
 *DNI...* 🤷‍♀️
 - If you're below 16
 - Into zoophelia, adultxchild, incest ships, loli/shota
-- NSFW/R34 artists, or anything related to it
+- NSFW/R34 artists
 - Anti-theist. I'm very open about my faith. If that bothers you, hide me
 
-- Okay I know these are common sense, but apparently this one isn't: **ANYONE WHO SHARES AND GLORIFIES ANY KIND OF PORN**; You will be hidden, **NO EXCEPTIONS.**
+- Okay I know these are common sense, but apparently this one isn't: **ANYONE WHO SHARES AND GLORIFIES ANY KINDS OF PORN**; You will be hidden, **NO EXCEPTIONS.**
 
 
 _______________________________________________________________________________________________________
