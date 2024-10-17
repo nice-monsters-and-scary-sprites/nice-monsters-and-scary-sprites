@@ -5,7 +5,7 @@ Pls call me **Sugi** !!
 _______________________________________________________________________________________________________
 
 - CATHOLIC GIRL
-- Turning 20 next year....... Yaaaaaaaayyyyyyyyyyyyyy.....!
+- Turning 20 next year....... IN MARCH.....!
 - Fav music is Vocaloid, Ween, S3RL, Apex Twin, Kraftwerk, anything of the sort
 - Other interests would be Pressure, Aquabats, IZ, TAWOG, Ratboy Genius and FBACC
 - On and off artist, mainly digital
