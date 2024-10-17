@@ -21,8 +21,8 @@ ________________________________________________________________________________
 *DNI...* 🤷‍♀️
 - If you're below 16
 - Into zoophelia, adultxchild, incest ships, loli/shota
-- NSFW/R34 artists, and those who are prone to sharing it with others
-- Anti-theist. I'm very open about my faith. If that bothers you so much, then hide me
+- NSFW/R34 artists, and if you're prone to sharing that sort of thing with others
+-I'm very open about my faith. If that bothers you so much, then hide me
 
 
 _______________________________________________________________________________________________________
