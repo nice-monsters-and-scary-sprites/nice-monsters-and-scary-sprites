@@ -20,7 +20,7 @@ ________________________________________________________________________________
 
 *DNI...* 🤷‍♀️
 - If you're below 16
-- Into adultxchild, incest ships, loli/shota
+- Into zoophelia, adultxchild, incest ships, loli/shota
 - NSFW/R34 artists, or anything related to it
 - I'm very open about my faith. If that bothers you, hide me
 
