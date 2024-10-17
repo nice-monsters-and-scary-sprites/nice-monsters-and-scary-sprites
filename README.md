@@ -20,7 +20,7 @@ ________________________________________________________________________________
 - If you're below 16
 - Into zoophelia, adultxchild, incest ships, loli/shota (AKA: common sense!)
 - NSFW/R34 in general, and if you're prone to sharing that sort of thing with others
-- I'm very open about my faith. If that bothers you so much, then hide me
+- I'm very open about my faith. If that bothers you so bad, then hide me
 
 _______________________________________________________________________________________________________
 
